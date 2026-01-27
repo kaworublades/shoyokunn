@@ -1,12 +1,12 @@
 ★ ‧˚⊹ " internet's hometown hero . 💢"
 
-Aha ,, I’ll try to do an intro pls read b4 interacting ! - formalities are always a bit embarrassing for me .
+Aha, I’ll try to do an intro pls read b4 interacting ! - formalities are always a bit embarrassing for me.
 
 ┈┈┈ ୨୧ ┈┈┈
 
 Hey hey ,, I’m Azael or Sebastian, anything u wanna call me really idc or mind (I have too many namez) .
 
-; ꒰ ⭐️ : . 🍷
+; ꒰ ⭐️ : I have a boyfriend and I love him a lot, so be careful with how you address me or I'll end up blocking you. 🍷
 
 (๑> ₃ <)
 
