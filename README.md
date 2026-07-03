@@ -4,7 +4,7 @@ Aha, I’ll try to do an intro pls read b4 interacting ! - formalities are alway
 
 ┈┈┈ ୨୧ ┈┈┈
 
-Hey hey, I’m Azael or Sebastian, anything u wanna call me really idc or mind! (I have too many names).
+Hey hey, I’m Flan or Fer, anything u wanna call me really idc or mind! (I have too many names).
 
 ; ꒰ ⭐️ : I have a boyfriend and I love him a lot, so be careful with how you address me or I'll end up blocking you. 
 
